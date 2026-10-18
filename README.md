@@ -1,0 +1,2 @@
+# premium-self-bow-001-self-bow-tillering-floor-and-d
+Tired of guessing if your bow's limbs are evenly bending, only to discover a hinge when it's too late? Stop wasting wood and start tillering with precision — the Self Bow Tillering Floor and Draw Weight Tracker turns your Notion workspace into a command center for your longbow or recurve build.  This template replaces scattered notebook pages and s
